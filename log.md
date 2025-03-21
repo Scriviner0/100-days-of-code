@@ -7,7 +7,7 @@
 
 **Thoughts:** I did good for someone who was motivated in the middle of night.even though I was bored I didn't quit, so that's great.i am supposed to link my project here but since I have just bagan the course i will just link my tweet
 
-**Link to work:** [Calculator App](http://www.example.com)
+**Link to work:** [Tweet](https://x.com/Sahal663362/status/1903165292567740862?t=jpJMA_VKklXVHpRAHhFLPg&s=19)
 
 ### Day 0: February 30, 2016 (Example 2)
 ##### (delete me or comment me out)
